@@ -1,1 +1,1 @@
-# equipo
+# llave de tobillo
